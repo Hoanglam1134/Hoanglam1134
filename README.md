@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Hoanglam1134
+- 👋 Hi, I'm Lam
 - 🌱 I’m currently learning IT at university
 - 📫 You can contact me via hoanglamtt1232@gmail.com
